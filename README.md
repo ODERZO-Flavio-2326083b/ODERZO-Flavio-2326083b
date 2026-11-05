@@ -1,6 +1,6 @@
 ### BLOOD IS FUEL // HELL IS FULL
 
-> Aix-En-Provence IUT student  
+> computer science engineering student
 > python my beloved  
 > cat enjoyer
 
